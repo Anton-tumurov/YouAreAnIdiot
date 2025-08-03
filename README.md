@@ -1,5 +1,5 @@
 # YouAreAnIdiot
-This is a archive of youareanidiot.org / youdontknowwhoiam.org.
+This is an archive of youareanidiot.org / youdontknowwhoiam.org.
 
 
 !!!! This file uses Adobe Flash Player !!!!
